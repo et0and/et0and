@@ -1,3 +1,7 @@
+Ex-teacher and art person. Mostly web stuff and little experiments here.
+ 
+Developer at Wellington City Council. 
+
 <pre>
 ⠀⠀⠀⠀⠀⠀⠀⠀⣀⡤⠞⠉⣁⣤⢤⣼⣷⣴⣶⡄⠀⠀⠀⠀⠀⠀⠉⠛⢦⣤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⢠⡾⣋⡤⢖⣾⣿⣿⡿⣿⡿⣿⡍⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠳⡈⠳⣄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
